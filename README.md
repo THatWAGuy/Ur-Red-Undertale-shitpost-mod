@@ -1,4 +1,4 @@
-# Ur Red - The Undertale Shitpost Mod
+# Ur Red - ~~The~~ An Undertale Shitpost Mod
 
 Essentially the "RANDOM BULLSHIT GO" Undertale mod
 
